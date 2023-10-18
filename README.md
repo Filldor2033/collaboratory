@@ -1,1 +1,0 @@
-Работы из Google Collaboratory
